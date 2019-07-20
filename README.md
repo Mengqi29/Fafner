@@ -1,2 +1,2 @@
-# Fafner
-The growth path of a legendary 
+# Fafnir
+The growth path of a legendary - BROTHER Qi!
